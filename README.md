@@ -1,6 +1,6 @@
 # AeroDefenceV2-Cracked
 
-Voice le fameux AeroDefence de Boby et KiLaf.
+Voice le fameux AeroDefence de Boby ( Juba Djennad ) et KiLaf.
 
 Cracked By Capsule & Kika (discord.gg/modernrp) Meilleur serv rp la famille
 
